@@ -14,4 +14,4 @@ Individual Game  https://cyberskyline.com/world/61f3166c37a76e3286572aa2
 
 Team Game  https://cyberskyline.com/world/61f3166c37a76e3286572aa5
 
-Resume https://1drv.ms/w/s!Ak4aWeeAaOCiqTDCPJuHV-c8Qu-Z?e=mrpZHd
+Resume https://1drv.ms/w/s!Ak4aWeeAaOCiqTAgOolXh3tEb2hc?e=lighov
